@@ -1,4 +1,4 @@
-# 
+# Turbo low cap gem sniper bot extensions for Mac OS | Advanced low cap gem sniper bot extensions for PC Windows. Featuring simulation testing and market orders — optimized for maximum performance on every platform.
 
 
 
